@@ -8,4 +8,6 @@ To generate an opportunity in a change-focused role with a team that is motivate
 
 [Linkedin](https://www.linkedin.com/in/rabracho/)
 
+Outside of data analytics and workflow automation, I also enjoy projects like the ones shown in the video below:
+
 [Home Improvement](https://youtu.be/-fC5ADNs1rU)
