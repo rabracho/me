@@ -8,7 +8,7 @@ To generate an opportunity in a change-focused role with a team that is motivate
 
 [Linkedin](https://www.linkedin.com/in/rabracho/)
 
-## Aside
+### Aside
 
 Outside of data analytics and supply chain management, I enjoy projects like the ones shown in the video below:
 
