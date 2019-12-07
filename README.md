@@ -1,6 +1,6 @@
 # Mission
 
-The goal of this page is to generate an opportunity in a change-focused role with a team that is motivated and hungry for optimization. 
+To generate an opportunity in a change-focused role with a team that is motivated and hungry for optimization. 
 
 [Standard Resume](Résumé/Standard.pdf)
 
