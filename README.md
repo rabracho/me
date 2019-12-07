@@ -10,6 +10,6 @@ To generate an opportunity in a change-focused role with a team that is motivate
 
 ## Aside
 
-Outside of data analytics and workflow automation, I also enjoy projects like the ones shown in the video below:
+Outside of data analytics and supply chain management, I enjoy projects like the ones shown in the video below:
 
 [Home Improvement](https://youtu.be/-fC5ADNs1rU)
