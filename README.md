@@ -1,6 +1,4 @@
-# Mission
-
-To discover a change-focused role with a team that is motivated and optimization focused. 
+# Links
 
 [Résumé](https://rabracho.me)
 
