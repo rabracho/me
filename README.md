@@ -1,15 +1,13 @@
 # Mission
 
-To generate an opportunity in a change-focused role with a team that is motivated and hungry for optimization. 
+To discover a change-focused role with a team that is motivated and optimization focused. 
 
-[Standard Résumé](Résumés/RomerBrachoStandard.pdf)
-
-[Modern Résumé](Résumés/RomerBrachoModern.pdf)
+[Résumé](https://rabracho.me)
 
 [Linkedin](https://www.linkedin.com/in/rabracho/)
 
 ### Aside
 
-Outside of data analytics and supply chain management, I enjoy projects like the ones shown in the video below:
+Outside of data analytics and supply chain management, I enjoy home improvment and DIY projects like the ones shown in the video below:
 
-[Home Improvement](https://youtu.be/-fC5ADNs1rU)
+[The Choranch](https://youtu.be/-fC5ADNs1rU)
